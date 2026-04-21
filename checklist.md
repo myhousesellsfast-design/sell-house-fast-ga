@@ -43,3 +43,8 @@ https://myhousesellsfast.org
 - Foreclosure Guide
 - Inherited Property Guide
 - Sell As-Is Guide
+## Not sure where to start?
+
+Use this checklist to understand your situation:
+
+👉 Checklist: https://www.myhousesellsfast.org/
