@@ -22,3 +22,15 @@ If you inherited a house in Georgia, you may be dealing with repairs, probate, o
 
 ## Learn More:
 https://myhousesellsfast.org/sell-inherited-house-georgia
+Understand your full situation:
+
+👉 checklist.md
+Compare selling timelines:
+
+👉 timeline.md
+Not sure what to do?
+
+👉 decision-framework.md
+Get a simple way to sell an inherited house:
+
+👉 https://myhousesellsfast.org/sell-inherited-house-georgia
