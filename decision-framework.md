@@ -66,8 +66,14 @@ If you're still unsure, reviewing your options here may help:
 https://myhousesellsfast.org
 
 ---
+https://www.myhousesellsfast.org/
+Want to compare timing first?
+
+ timeline.md
 
 ## Related Guides:
-- Foreclosure Guide  
-- Timeline Guide  
+- Foreclosure Guide
+- Get your fastest option here:
+
+👉 https://myhousesellsfast.org/
 - Checklist Guide  
