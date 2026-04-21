@@ -43,7 +43,15 @@ If you want to understand what works best for your situation:
 
 https://myhousesellsfast.org
 
----
+---Still unsure what applies to you?
+
+👉 checklist.md
+Now compare your options:
+
+👉 decision-framework.md
+Fastest path for most homeowners:
+
+👉 https://myhousesellsfast.org
 
 ## Related Guides:
 - Foreclosure Guide
