@@ -11,4 +11,4 @@ If you need to sell your house fast in Georgia, this page explains your options 
 ## Start Here
 https://myhousesellsfast.org
 If you want the fastest way to understand your options, request a cash offer here:
-👉 https://myhousesellsfast.org/sell-my-house-fast-gwinnett-county
+👉 https://www.myhousesellsfast.org/
