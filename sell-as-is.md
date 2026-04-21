@@ -23,5 +23,4 @@ Selling as-is means:
 - Fast closing (7–14 days)
 - No commissions or fees
 
-## Learn More:
-https://myhousesellsfast.org/sell-my-house-fast-gwinnett-county
+## Learn More:(https://coecameronagentseller.carrot.com/cash-home-buyers-gwinnett/)
